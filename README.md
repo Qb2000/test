@@ -4,7 +4,7 @@ B
 A
 
 C
-C你媽是批發的?
+C
 C
 C
 dfdfsdfaiasdf
